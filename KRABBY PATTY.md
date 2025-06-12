@@ -19,3 +19,6 @@ Hidden Ingredients and Love:
 The show also suggests other ingredients like tartar sauce, mayo, sea salt, land salt, and barnacle shavings. 
 The concept of "love" being an ingredient has also been explored. 
 Some fan theories suggest love is a key ingredient, while others suggest it's merely a marketing tactic by Mr. Krabs. 
+
+The Secret Sauce:
+While the Krabby Patty's secret formula is hidden, the sauce is revealed to be a mix of mayonnaise, ketchup, and other seasonings. 
